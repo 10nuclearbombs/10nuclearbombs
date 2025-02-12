@@ -29,6 +29,7 @@ Pt stuff oh yea yayy
   - I usally play pt on mobile [I have  a pc it's jus laggy]
   - austism maybe
   - no interest list 4 now sory
+  - I'd highly request not unironically rping with me no thanks nuh uh
 <!---
 10nuclearbombs/10nuclearbombs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
